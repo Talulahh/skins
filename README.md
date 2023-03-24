@@ -11,3 +11,7 @@
 ![screenshot047](https://user-images.githubusercontent.com/125215844/224572912-e46540e9-b1f0-4d4a-83c2-00120a45d04a.jpg)
 ### [tekkito](https://cdn.discordapp.com/attachments/481597760194347037/1084578768523374755/tekkito2.osk)
 ![screenshot048](https://user-images.githubusercontent.com/125215844/224572968-3d0cbb31-2bc1-4c76-8acd-ea16ff97a551.jpg)
+### [cookiezi edit](https://cdn.discordapp.com/attachments/481597760194347037/1088689284996943952/cookiezi_tekkito.osk)
+![screenshot052](https://user-images.githubusercontent.com/125215844/227428913-db8642fb-456c-4d63-942c-1f0e89524f4d.jpg)
+### [elohere edit](https://cdn.discordapp.com/attachments/481597760194347037/1088690164701868042/elohere_edited.osk)
+![screenshot053](https://user-images.githubusercontent.com/125215844/227429330-0ec81e4d-00a2-4597-b0e9-fefa7bcbea24.jpg)
